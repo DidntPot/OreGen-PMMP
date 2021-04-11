@@ -13,6 +13,3 @@
 ### **Emerald Generator** = Emerald Ore / ID: 133
 
 ❤️️ Enjoy!
-
-# Contact ›
-Discord » 𝐉𝐚𝐜𝐤.#0001 
